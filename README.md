@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **bereketsewnet306@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LqPop1etl_aqYT7m8eJ2YFvp1qef1SNo/view?usp=drive_link](https://drive.google.com/file/d/1LqPop1etl_aqYT7m8eJ2YFvp1qef1SNo/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_QhpFf_UMhO5jZAtQ5OUe-YrsGYSv4cX/view?usp=drive_link](https://drive.google.com/file/d/1_QhpFf_UMhO5jZAtQ5OUe-YrsGYSv4cX/view?usp=drive_link)
 
 
 - ⚡ Fun fact **I think I'am fast learner, i can don't want ever i want in programming even i don't have knowledge about framework or programming language**
